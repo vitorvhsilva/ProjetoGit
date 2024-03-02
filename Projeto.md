@@ -1,1 +1,1 @@
-O Projeto seraa desenvolvido aqui
+O Projeto sera desenvolvido aqui
